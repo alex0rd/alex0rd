@@ -18,7 +18,7 @@ Here are some ideas to get you started:
 
 <img align="right" src="https://count.getloli.com/get/@:alex0rd?theme=rule34">
 
-## 安全工程师—Alex0rd
+## Alex0rd
 
 知行和一，行稳致远！
 <br><br><br>
